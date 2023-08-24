@@ -1,5 +1,3 @@
-Encouraging Work-Life Balance
-==============================================================================
 
 In today's fast-paced world, achieving a healthy work-life balance has become increasingly important. Creating a positive work environment that encourages work-life balance is essential for keeping employees motivated and engaged. In this chapter, we'll explore the key ways in which employers can encourage work-life balance and create a more positive workplace environment.
 

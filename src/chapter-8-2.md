@@ -1,5 +1,3 @@
-Modeling Motivating Behaviors
-============================================================
 
 Leadership support is essential for creating a motivating workplace environment. Leaders must not only provide clear direction and foster trust, respect, growth, and development, but they must also model the behaviors that they want to see in their employees. In this chapter, we'll explore the key ways in which leaders can model motivating behaviors and create a culture of motivation within their organizations.
 

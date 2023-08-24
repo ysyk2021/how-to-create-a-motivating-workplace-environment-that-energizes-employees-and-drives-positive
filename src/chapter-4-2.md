@@ -1,5 +1,3 @@
-Providing Regular Feedback and Coaching
-======================================================================================================
 
 Building a culture of recognition and appreciation is essential for creating a motivating workplace environment. In this chapter, we will explore strategies for providing regular feedback and coaching to support employee engagement and motivation.
 

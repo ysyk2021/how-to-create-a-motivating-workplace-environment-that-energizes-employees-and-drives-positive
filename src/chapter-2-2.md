@@ -1,5 +1,3 @@
-The Benefits of Creating a Motivating Workplace Environment
-==================================================================================================================
 
 Creating a motivating workplace environment is essential for driving employee engagement, productivity, and positive business outcomes. In this chapter, we will define what a motivating workplace environment is and explore the benefits of creating one.
 

@@ -1,5 +1,3 @@
-The Risks to Employee Morale, Productivity, and Retention
-===============================================================================================================================================
 
 Creating a motivating workplace environment is essential for driving organizational growth and success. When employees feel valued, engaged, and energized, they are more likely to be productive, innovative, and committed to the organization's goals. However, failing to prioritize employee motivation can have significant risks to employee morale, productivity, and retention. In this chapter, we'll explore these risks in detail.
 

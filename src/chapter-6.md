@@ -1,5 +1,3 @@
-Chapter 5: Creating a Positive Work Environment
-===============================================
 
 Creating a positive work environment is critical for fostering a motivating workplace environment. In this chapter, we will explore strategies for maintaining a clean and comfortable work environment, encouraging work-life balance, and providing perks and benefits.
 

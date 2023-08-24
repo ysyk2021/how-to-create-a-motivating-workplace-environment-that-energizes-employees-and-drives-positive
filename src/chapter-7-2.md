@@ -1,5 +1,3 @@
-Overcoming Barriers to Effective Implementation
-==========================================================================
 
 Implementing motivating workplace strategies requires a deliberate and sustained effort from employers. While the benefits of creating a motivating workplace environment are clear, there can be barriers that prevent effective implementation. In this chapter, we'll explore some common barriers to effective implementation and provide strategies for overcoming them.
 

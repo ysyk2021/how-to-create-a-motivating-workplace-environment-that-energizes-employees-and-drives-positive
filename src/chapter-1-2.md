@@ -1,5 +1,3 @@
-Overview of Motivating Workplace Environments
-===========================================================
 
 A motivating workplace environment is a work environment that supports employee engagement, motivation, and well-being. It is a workplace where employees feel valued, supported, and empowered to perform at their best.
 

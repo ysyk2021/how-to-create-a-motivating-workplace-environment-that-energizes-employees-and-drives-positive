@@ -1,5 +1,3 @@
-Addressing New Challenges in Promoting Employee Motivation
-========================================================================================
 
 As businesses continue to evolve, there are new challenges that arise in promoting employee motivation. In this chapter, we will explore some of the emerging trends and issues that organizations need to address in order to create a motivating workplace environment.
 

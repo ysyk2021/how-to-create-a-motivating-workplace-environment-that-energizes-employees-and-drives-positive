@@ -1,5 +1,3 @@
-Chapter 7: Leadership Support
-=============================
 
 Leadership plays a critical role in creating a motivating workplace environment. In this chapter, we will explore the role of leadership in creating a motivating workplace environment, modeling motivating behaviors, and addressing challenges and setbacks.
 

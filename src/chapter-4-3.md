@@ -1,5 +1,3 @@
-Offering Opportunities for Professional Development
-==================================================================================================================
 
 In order to create a motivating workplace environment, it is important to offer opportunities for professional development. This not only benefits the individual employee, but also has positive business outcomes. When employees feel that their employer values their growth and development, they are more likely to be engaged and committed to their work.
 

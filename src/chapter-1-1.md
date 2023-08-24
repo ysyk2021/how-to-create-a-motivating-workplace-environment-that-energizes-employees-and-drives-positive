@@ -1,5 +1,3 @@
-Purpose of the Book
-=================================
 
 The success of any organization depends largely on the motivation and productivity of its employees. Creating a motivating workplace environment is essential to achieving positive business outcomes, but it's not always easy to know where to start.
 

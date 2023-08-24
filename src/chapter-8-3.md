@@ -1,5 +1,3 @@
-Addressing Challenges and Setbacks
-=================================================================
 
 Creating a motivating workplace environment requires ongoing support and commitment from leadership. In this chapter, we will explore strategies for addressing challenges and setbacks in creating a motivating workplace environment.
 

@@ -1,5 +1,3 @@
-Chapter 6: Implementation
-=========================
 
 Implementing motivating workplace strategies is critical for driving positive business outcomes. In this chapter, we will explore strategies for implementing motivating workplace strategies, overcoming barriers to effective implementation, and measuring the effectiveness of motivating workplace strategies.
 

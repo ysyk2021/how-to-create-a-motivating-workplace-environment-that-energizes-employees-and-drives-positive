@@ -1,5 +1,3 @@
-The Costs of Ignoring Employee Motivation
-===============================================================================================================================
 
 Creating a motivating workplace environment is essential for driving organizational growth and success. When employees feel valued, engaged, and energized, they are more likely to be productive, innovative, and committed to the organization's goals. However, ignoring employee motivation can have significant costs that can impact the organization's bottom line. In this chapter, we'll explore these costs in detail.
 

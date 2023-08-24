@@ -1,5 +1,3 @@
-Measuring the Effectiveness of Motivating Workplace Strategies
-=========================================================================================
 
 Creating a motivating workplace environment requires a deliberate and sustained effort from employers. It's essential to measure the effectiveness of different strategies and approaches to ensure that they are achieving the desired outcomes. In this chapter, we'll explore the key ways in which employers can measure the effectiveness of their motivating workplace strategies.
 

@@ -1,5 +1,3 @@
-Providing Perks and Benefits
-=============================================================================
 
 Creating a positive work environment is essential for driving employee engagement, motivation, and well-being. One way to create a positive work environment is by providing perks and benefits that support employee needs and preferences. In this chapter, we will explore how to provide perks and benefits that contribute to a positive work environment.
 

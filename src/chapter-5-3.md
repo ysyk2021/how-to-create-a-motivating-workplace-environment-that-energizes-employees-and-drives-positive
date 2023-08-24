@@ -1,5 +1,3 @@
-Building Trust and Psychological Safety
-========================================================================================
 
 Teamwork and collaboration are essential for creating a motivating workplace environment. When employees feel supported by their colleagues and work together towards common goals, they are more likely to be engaged and productive. In this chapter, we'll explore the key ways in which employers can build trust and psychological safety within their teams to foster teamwork and collaboration.
 

@@ -1,5 +1,3 @@
-Looking Ahead to the Future of a Workforce with a Motivating Workplace Culture
-============================================================================================================
 
 As the workplace continues to evolve, the importance of creating a motivating workplace environment will only become more critical. In this chapter, we will explore future directions for creating a motivating workplace culture and examine the impact it will have on the workforce.
 

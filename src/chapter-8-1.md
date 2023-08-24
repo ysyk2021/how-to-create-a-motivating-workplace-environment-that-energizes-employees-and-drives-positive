@@ -1,5 +1,3 @@
-The Role of Leadership in Creating a Motivating Workplace Environment
-====================================================================================================
 
 Leadership plays a critical role in creating a motivating workplace environment. Leaders set the tone for the organization and are responsible for establishing a culture that energizes employees and drives positive business outcomes. In this chapter, we'll explore the key ways in which leaders can support their employees and create an environment that fosters motivation.
 
