@@ -1,5 +1,4 @@
-Chapter: The Role of Leadership in Creating a Motivating Workplace Environment
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leaders play a vital role in creating a motivating workplace environment that energizes employees and drives positive business outcomes. This chapter explores the importance of leadership in fostering motivation, outlines key leadership behaviors that contribute to a motivating workplace, and provides practical strategies for leaders to inspire and motivate their teams.
 

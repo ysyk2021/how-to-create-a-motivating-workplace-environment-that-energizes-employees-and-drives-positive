@@ -1,5 +1,4 @@
-Chapter: Promoting Open Communication and Transparency
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Promoting open communication and transparency is a vital aspect of creating a motivating workplace environment that energizes employees and drives positive business outcomes. In this chapter, we explore the significance of open communication and transparency in the workplace and discuss strategies for fostering these key elements.
 

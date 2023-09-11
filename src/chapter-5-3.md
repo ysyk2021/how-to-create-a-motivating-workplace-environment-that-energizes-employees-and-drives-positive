@@ -1,5 +1,4 @@
-Chapter: Building Trust and Psychological Safety
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building trust and psychological safety is crucial for creating a motivating workplace environment that energizes employees and drives positive business outcomes. In this chapter, we explore the importance of trust and psychological safety in the workplace and discuss strategies for fostering these essential elements.
 

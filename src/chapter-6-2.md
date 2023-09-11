@@ -1,5 +1,4 @@
-Chapter: Encouraging Work-Life Balance
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced and demanding work environment, encouraging work-life balance is crucial for creating a motivating workplace that energizes employees and drives positive business outcomes. In this chapter, we explore the importance of work-life balance and provide strategies to foster it within your organization.
 

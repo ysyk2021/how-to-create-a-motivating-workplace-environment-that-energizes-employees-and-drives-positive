@@ -1,5 +1,4 @@
-Chapter: Addressing Challenges and Setbacks
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In any workplace, challenges and setbacks are inevitable. When these obstacles arise, employees can become demotivated, leading to decreased productivity and performance. This chapter explores the importance of addressing challenges and setbacks in a motivating workplace environment, and provides practical strategies for leaders to maintain motivation during difficult times.
 

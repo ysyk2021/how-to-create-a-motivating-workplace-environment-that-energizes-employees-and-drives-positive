@@ -1,5 +1,4 @@
-Chapter: What is a Motivating Workplace Environment?
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A motivating workplace environment is one that fosters employee engagement, satisfaction, and productivity while driving positive business outcomes. It is a setting where employees feel inspired, supported, and empowered to do their best work. In this chapter, we explore the key elements of a motivating workplace environment and discuss strategies for creating such an environment within your organization.
 

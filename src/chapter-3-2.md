@@ -1,5 +1,4 @@
-Chapter: The Costs of Ignoring Employee Motivation
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Ignoring employee motivation in the workplace can have significant costs for organizations. A lack of focus on motivating employees not only affects their individual job satisfaction but also impacts overall business outcomes. In this chapter, we explore the costs associated with neglecting employee motivation and the detrimental effects it can have on organizational success.
 

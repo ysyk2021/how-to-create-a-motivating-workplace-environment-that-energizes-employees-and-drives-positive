@@ -1,5 +1,4 @@
-Chapter: Offering Opportunities for Professional Development
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to create a motivating workplace environment that energizes employees and drives positive business outcomes, it is crucial to offer opportunities for professional development. In this chapter, we explore the significance of professional development and provide strategies for providing growth and learning opportunities within your organization.
 

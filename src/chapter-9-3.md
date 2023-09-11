@@ -1,5 +1,4 @@
-Chapter: Looking Ahead to the Future of a Workforce with a Motivating Workplace Culture
-=======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the ever-evolving landscape of work, organizations must continuously adapt and look ahead to the future. This chapter explores the future of a workforce with a motivating workplace culture, identifying key trends and considerations for creating an environment that will energize employees and drive positive business outcomes.
 

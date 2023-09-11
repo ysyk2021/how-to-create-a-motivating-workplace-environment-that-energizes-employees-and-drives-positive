@@ -1,5 +1,4 @@
-Chapter: The Risks to Employee Morale, Productivity, and Retention
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Employee morale, productivity, and retention are vital aspects of a motivating workplace environment that drives positive business outcomes. However, there are various risks that can impact these crucial elements and potentially hinder organizational success. In this chapter, we explore the risks that organizations should be aware of and strategies for mitigating them.
 

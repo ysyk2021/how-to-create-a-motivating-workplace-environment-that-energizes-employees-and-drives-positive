@@ -1,5 +1,4 @@
-Chapter: The Benefits of Creating a Motivating Workplace Environment
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a motivating workplace environment offers numerous benefits for both employees and the organization as a whole. In this chapter, we explore the positive outcomes that result from fostering a motivating workplace environment and discuss how it can contribute to overall business success.
 

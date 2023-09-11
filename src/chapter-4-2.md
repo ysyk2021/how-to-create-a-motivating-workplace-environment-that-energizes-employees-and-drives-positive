@@ -1,5 +1,4 @@
-Chapter: Providing Regular Feedback and Coaching
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to create a motivating workplace environment that energizes employees and drives positive business outcomes, it is essential to provide regular feedback and coaching. In this chapter, we explore the significance of feedback and coaching and provide strategies for implementing effective feedback and coaching practices within your organization.
 

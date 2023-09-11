@@ -1,5 +1,4 @@
-Chapter: Recognizing and Appreciating Employee Contributions
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to create a motivating workplace environment that energizes employees and drives positive business outcomes, it is crucial to recognize and appreciate their contributions. In this chapter, we explore the significance of employee recognition and provide strategies for effectively acknowledging and appreciating the valuable work done by your team members.
 

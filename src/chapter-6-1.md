@@ -1,5 +1,4 @@
-Chapter: Maintaining a Clean and Comfortable Work Environment
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to create a motivating workplace environment that energizes employees and drives positive business outcomes, it is essential to prioritize the cleanliness and comfort of the workspace. In this chapter, we explore the importance of maintaining a clean and comfortable work environment and provide strategies for achieving it within your organization.
 
